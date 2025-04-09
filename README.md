@@ -8,3 +8,6 @@ Here are the **official** Solara pages if you would like to download directly:
 
 https://getsolara.dev/
 https://discord.gg/get-solara
+
+
+*if you would like to go through my linkvertise (10 seconds, https://link-center.net/1336032/solara) to support me I would be very greatful (not required) :)*
